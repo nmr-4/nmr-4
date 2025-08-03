@@ -1,4 +1,4 @@
-# Hi, I’m **Aki** (あき)
+# Hi, I’m **NMR-4**
 
 > AI Automation Builder ・ Generative‑AI Enthusiast
 
